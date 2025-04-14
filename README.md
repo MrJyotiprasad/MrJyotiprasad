@@ -39,8 +39,8 @@ Wanna build something cool together? I’m always down to collab.
 📬 Drop a DM or hit me up below:
 
 - 🔗 [Website](https://electrolab.in)  
-- 🎥 [YouTube](#)  
-- 📷 [Instagram](#)
+- 🎥 [YouTube](https://www.youtube.com/c/MrJyotiPrasadd)  
+- 📷 [Instagram](https://www.instagram.com/jyotiprasadmohanta/)
 
 ---
 
